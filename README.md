@@ -1,1 +1,1 @@
-# python-Egor
+# i love math
